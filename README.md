@@ -9,7 +9,7 @@
 
 - 💬 Ask me about **everything you want**
 
-- 📫 How to reach me **www.linkedin.com/in/hamza-dardari-4bb0a0304**
+- 📫 How to reach me **www.linkedin.com/in/hamza-dardari**
 
 - ⚡ Fun fact **I'm left handed**
 
